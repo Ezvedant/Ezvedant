@@ -6,6 +6,7 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 for freelance work? do reach, email :)
+vedantpc007@gmail.com
 
 <!---
 Ezvedant/Ezvedant is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
